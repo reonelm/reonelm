@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 need more knowledge<br>🤝 tryna to help <br>🌱 still learning<br>
+Teenage, still learn and need more knowledge. if wanna ask something about me dm ig:@1am.after12h or discord:onelamn
 
 
 ## 🌐 Socials:
